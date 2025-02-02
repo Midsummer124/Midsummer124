@@ -1,8 +1,8 @@
-- Hello! This is Midsummer124
+- Hello! This is Midsummer124.
 - So this account has been used for personal projects and projects in school or during my internship. 
 - It's great to have u check here.
-- if you wanna reach out for me check email below
-- I'll reply as soon as I can 
+- if you wanna reach out for me check email below.
+- I'll reply as soon as I can.
 - Midsummer124@outlook.com
 
 <!---
